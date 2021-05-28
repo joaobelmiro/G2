@@ -1,1 +1,3 @@
-# G2
+João Pedro Müller Belmiro
+Maicon Mazzonetto Rossatto
+
